@@ -1,4 +1,0 @@
-# DENEME
-## HEY
-dfjdslkfjldsfdf
-dfdsfsdfsdfdsf
